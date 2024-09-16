@@ -31,7 +31,7 @@ Just say it ain't so, I will not go
 Turn the lights off, carry me home
 
 [Chorus: Tom DeLonge & Mark Hoppus]
-Na-na, na-na, na-na, na-na, na, na
+Na-na, na-na, na-na, na-na, na, na batman
 Na-na, na-na, na-na, na-na, na, na
 Na-na, na-na, na-na, na-na, na, na
 Na-na, na-na, na-na, na-na, na, na
